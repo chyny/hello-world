@@ -1,1 +1,1 @@
-hello. Welcome.
+Hello!, everybody! Welcome to this world! This world is opened to everybody.
